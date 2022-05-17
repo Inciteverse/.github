@@ -1,4 +1,4 @@
-# Inciteverce
+# Inciteverse
 
 Inciteverse is an emerging IT Solution and Digital Marketing 
 Company in Udaipur, We deliver standard-premium services in the 
